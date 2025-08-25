@@ -1,8 +1,6 @@
 saturn has many stars in the sky
 Raju
-Rani
-Donga
-Police
-Manthri
-kanthri
-
+Star ante rebel eh ra
+Rahul Nani
+KannaKutti
+Hero ra nvhu
